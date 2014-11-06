@@ -11,6 +11,13 @@
 
 [bald hill post explosion, 1918](http://novascotia.ca/archives/virtual/Explosion/archives.asp?ID=20)
 
+[view of harbour 1920s?](http://novascotia.ca/archives/virtual/NSIS/archives.asp?ID=361)
+
+[view of harbour 1920s?](http://novascotia.ca/archives/virtual/NSIS/archives.asp?ID=362)
+
+http://novascotia.ca/archives/virtual/NSIS/archives.asp?ID=363
+
+
 
 # why
 
