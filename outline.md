@@ -2,6 +2,16 @@
 
 ![Fort Needham ca.1801](http://www.mccord-museum.qc.ca/largeimages/0209.jpg)
 ![Fort Needham ca.1780, engraving by Edward Hicks](http://upload.wikimedia.org/wikipedia/commons/c/c1/Fort_Needham_1780_facing_Citadel_NSARM.jpg)
+
+[Polo team on Fort Needham grounds](http://novascotia.ca/archives/virtual/Notman/archives.asp?ID=402)
+
+[Richmond School 1921](http://novascotia.ca/archives/virtual/Explosion/archives.asp?ID=132)
+
+[bald hill 1921](http://novascotia.ca/archives/virtual/Explosion/archives.asp?ID=135)
+
+[bald hill post explosion, 1918](http://novascotia.ca/archives/virtual/Explosion/archives.asp?ID=20)
+
+
 # why
 
 * philosophy, goals, policies
