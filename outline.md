@@ -1,5 +1,7 @@
 # introduction
 
+![Fort Needham ca.1801](http://www.mccord-museum.qc.ca/largeimages/0209.jpg)
+![Fort Needham ca.1780, engraving by Edward Hicks](http://upload.wikimedia.org/wikipedia/commons/c/c1/Fort_Needham_1780_facing_Citadel_NSARM.jpg)
 # why
 
 * philosophy, goals, policies
