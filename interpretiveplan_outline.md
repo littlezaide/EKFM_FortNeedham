@@ -46,6 +46,10 @@
 
 # image repository
 
+![1842 watercolour](http://data2.archives.ca/ap/c/c013729k.jpg)
+
+![post-explosion w/Fort Needham in the distance](http://collectionscanada.gc.ca/pam_archives/index.php?fuseaction=genitem.displayEcopies&lang=eng&rec_nbr=3624171&rec_nbr_list=2834098,2836666,2896168,2895410,3305767,3624171,3193300&title=Aftermath+of+the+Halifax+Explosion%2C+showing+damaged+buildings+on+Gottingen+Street+and+Fort+Needham+in+the+distance.+&ecopy=c003624a)
+
 ![Fort Needham ca.1801](http://www.mccord-museum.qc.ca/largeimages/0209.jpg)
 ![Fort Needham ca.1780, engraving by Edward Hicks](http://upload.wikimedia.org/wikipedia/commons/c/c1/Fort_Needham_1780_facing_Citadel_NSARM.jpg)
 
