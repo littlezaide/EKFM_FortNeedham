@@ -1,16 +1,18 @@
 # Fort Needham 
 
+Fort Needham is a drumlin hill on the Halifax Peninsula, over 2 kilometres from the city's downtown core, and with its peak about 70 metres above sea level. As an urban site, it is unique by its ever-changing purpose throughout the city's history, being variously: farmland, two different forts, military barracks, marshalling grounds, parkland, sportsfields, a public monument, and land for temporary housing. It is significant to Halifax's military history as well as an important site for the memorializing of the 1917 Halifax Explosion. 
+
 ## first nations settlement
 
 People have occupied Nova Scotia for the last 11,000 years -- to the period known as the **Sa'qewe'k L'nu'k** or paleo-Indian period. There is no evidence of pre-European contact First Nations settlement anywhere on the Halifax peninsula, though marshy areas (such as the land where the Halifax Commons is today) were traditionally used for moose hunting by the Mi'kmaq. 
 
 Halifax Peninsula was part of the district called Eskikewa’kik or the "skin dressers territory".
 
-## beginning of Halifax
+## Fort Needham and the founding of Halifax
 
-Halifax was founded in 1749. 2.2km northwest of the young town's pallisades lay a hill - what is now called Fort Needham. The original survey of the Town Halifax was a square approximately 700m by 390m, meaning Fort Needham was over 3 times the town's length away. 
+Halifax was founded in 1749. 2.2km northwest of the young town's pallisades lay a hill which at its highest point is 70 metres above sea level - what is now called Fort Needham. 
 
-In 1753 the 32 hectares of Needham hill was granted to the Governor of Nova Scotia, and it was called the Governor's North Farm. The land was cleared and farmed, subdivided several times and buildings were built on the south western corner, where Young and Gottingen meet and where a large apartment building stands today. 
+In 1753 the 32 hectares of Needham hill was granted to the Governor of Nova Scotia, and it was called the Governor's North Farm. The land was cleared and farmed, subdivided several times and buildings were built on the south western corner, where Young and Gottingen meet and where a large apartment building stands today. The original survey of the Town Halifax was a square approximately 700m by 390m, meaning the hill was over 3 times the town's length away. 
 
 By the 1770s the town had grown long beyond the early palisades. Both the Royal Dockyard and extensive suburbs grew north of the town, up along the harbour. Concern about the American Revolutionary War caused the government to consider upgrading its defences. 
 
