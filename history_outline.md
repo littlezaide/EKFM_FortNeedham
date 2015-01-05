@@ -1,10 +1,21 @@
 # Fort Needham 
 
-Fort Needham is a drumlin hill on the Halifax Peninsula, over 2 kilometres from the city's downtown core, and with its peak about 70 metres above sea level. As an urban site, it is unique by its ever-changing purpose throughout the city's history, being variously: farmland, two different forts, military barracks, marshalling grounds, parkland, sportsfields, a public monument, and land for temporary housing. It is significant to Halifax's military history as well as an important site for the memorializing of the 1917 Halifax Explosion. 
+Fort Needham is a drumlin hill on the Halifax Peninsula, over 2 kilometres northwest of the city's downtown core, and with its peak about 70 metres above sea level. As an urban site, it is unique by its ever-changing purpose throughout the city's history, being variously: 
+
+* farmland 
+* two different forts
+* military barracks
+* marshalling grounds
+* parkland
+* sportsfields
+* a public monument
+* land for temporary housing. 
+
+It is significant to Halifax's military history as well as an important site for the memorializing of the 1917 Halifax Explosion. 
 
 ## first nations settlement
 
-People have occupied Nova Scotia for the last 11,000 years -- to the period known as the **Sa'qewe'k L'nu'k** or paleo-Indian period. There is no evidence of pre-European contact First Nations settlement anywhere on the Halifax peninsula, though marshy areas (such as the land where the Halifax Commons is today) were traditionally used for moose hunting by the Mi'kmaq. 
+People have occupied Nova Scotia for the last 11,000 years -- to the period known as the **Sa'qewe'k L'nu'k** or paleo-Indian period. There is no evidence of pre-European contact First Nations settlement anywhere on the Halifax peninsula including Fort Needham, though marshy areas (such as the land where the Halifax Commons is today) were traditionally used for moose hunting by the Mi'kmaq. 
 
 Halifax Peninsula was part of the district called Eskikewa’kik or the "skin dressers territory".
 
