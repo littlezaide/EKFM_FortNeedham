@@ -47,7 +47,7 @@ Part of Needham hill remained open space into the 20th century, used by the mili
 
 ## 1917 Halifax explosion
 
-On Dec 6, 1917, the Mont-Blanc, a French tramp steamer laden with 3000 tonnes of American explosives bound for Bordeaux France, blew up in the harbour near the foot of Richmond Street. 2000 people died, and unknown thousands were injured. Whole city blocks in Richmond were completely razed, especially those to the east of Fort Needham. The hill itself deflected some of the blast upwards, though houses and institutions on the west side of the hill were not altogether spared. 
+In the middle of the First World War, on Dec 6, 1917, a French tramp steamer named the Mont-Blanc blew up in the harbour near the foot of Richmond Street. It was laden with 3000 tonnes of American explosives bound for Bordeaux France, where they would be melted into shells to be used by the Allies. 2000 people died, and unknown thousands were injured - massive casualties suffered by civilians in a time of war, and by far the largest loss of life on Canadian home soil. Whole city blocks in Richmond were completely razed, especially those to the east of Fort Needham. The hill itself deflected some of the blast upwards, though houses and institutions on the west side of the hill were not altogether spared. 
 
 Fort Needham hill was covered in iron and steel pieces of the Mont-Blanc, as well as dead bodies and housing debris. After the calamity, Fort Needham hill was used as a camp for residents made homeless by the blast.
 
